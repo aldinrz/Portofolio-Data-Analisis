@@ -1,1 +1,2 @@
-# cvb
+As a recent graduate in the field of information systems, I am excited to apply my academic knowledge and skills in a professional environment where I can contribute to a dynamic and collaborative work environment. I am interested in roles that suit my field of study, but I am also open to exploring various fields that can provide valuable experience.
+I have a broad understanding of working with diverse groups of people and collaborating with teams from diverse backgrounds. I have excellent communication skills and am known to be detail-oriented, honest, responsible, and thorough. I am now ready to leverage this combination of education and experience to contribute to a dynamic team, and further develop my skills
